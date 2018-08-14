@@ -1,1 +1,1 @@
-# Sprint-2-Milestone-1
+# Sprint-2-Cookie Stand
